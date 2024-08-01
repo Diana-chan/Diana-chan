@@ -6,7 +6,7 @@
 - 😄 Pronouns: She, her
 - ⚡ Fun fact: likes sports but don't likes to do much movement
 
-<!---
-Diana-chan/Diana-chan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+**this is my place to do my works**  hope don't dislike it. I'm doing my best here. 
+
+
+
