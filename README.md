@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Diana-chan
 - 👀 I’m interested in know more about much things! 
 - 🌱 I’m currently learning about some projects by Alura
-- 💞️ I’m looking to collaborate on someone! hehehe
+- 💞️ I’m looking to collaborate or make Friendship! 
 - 📫 How to reach me : walking O-o
 - 😄 Pronouns: She, her
 - ⚡ Fun fact: likes sports but don't likes to do much movement
